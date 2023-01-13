@@ -32,7 +32,7 @@ E' possbile che gli ingredienti si separino durante la conservazione, che deve e
 
 Portare a temperatura ambiente prima di servirlo.
 
-La durata è di circa 30 giorni circa conservato in frigo, mentre 2-3 una volta aperto il barattolo.  
+La durata è di circa 30 giorni circa conservato in frigo, mentre 2-3 giorni una volta aperto il barattolo.  
 
 
 
