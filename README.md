@@ -29,7 +29,9 @@ Se si dovessero creare piccoli grumi si può usare un minipimer per poi filtrare
 
 ## Note:
 E' possbile che gli ingredienti si separino durante la conservazione, che deve essere fatta rigorosamente in contenitori di vetro, ma nessuna preoccupazione, basta mescolare prima dell'uso.
+
 Portare a temperatura ambiente prima di servirlo.
+
 La durata è di circa 30 giorni circa conservato in frigo, mentre 2-3 una volta aperto il barattolo.  
 
 
